@@ -16,8 +16,3 @@ Hello Everyone, Myself Darshan Poojari currently working as Salesforce Developer
 [![](https://visitcount.itsvg.in/api?id=poojarixdarshan&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-
----
-[![](https://visitcount.itsvg.in/api?id=poojarixdarshan&icon=0&color=0)](https://visitcount.itsvg.in)
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
