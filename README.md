@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello Everyone, Myself Darshan Poojari currently working as Salesforce Developer in Next Payments
+Hello Everyone
 
 
 ## 🌐 Socials:
